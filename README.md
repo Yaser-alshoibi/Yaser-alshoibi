@@ -2,7 +2,7 @@
 
 **I'm Yaser Alshoibi**
 
-- 🔭 I’m currently an electrical and electronics engineering student at University of Jeddah
+- 🔭 I’m an electrical and computer engineer
 
 - 😄 I hope you like my work
 - ⚡ Enjoy!
